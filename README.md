@@ -5,7 +5,7 @@
 - How to reach me / Email : johnn-yj@naver.com 
 
 
-- my syudy note
+- My syudy note
 -https://www.notion.so/ea7d2b13f69f4e0a83001e2805d0817b
 
 <!---
